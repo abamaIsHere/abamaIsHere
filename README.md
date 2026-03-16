@@ -1,5 +1,5 @@
 ## Hi there 👋
-I'm Abdullah Tayef
+I'm Abdullah Tayef,
 Aspiring Web Developer | 1st Year Student in Multimedia & Internet (BUT MMI)✨ 
 
 About Me
